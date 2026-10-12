@@ -1,6 +1,6 @@
 # Bitz Net官网地址
 
-最新地址：[bitzconnect.com](https://dir3.bnaffloop.com/#/register?code=98WGabSj)
+最新地址：[bitzconnect.com](https://sec.webitz.net/#/register?code=98WGabSj)
 
 ## 简介
 
